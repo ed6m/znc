@@ -1,0 +1,2 @@
+# znc
+fuck off
